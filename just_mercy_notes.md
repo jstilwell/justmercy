@@ -28,7 +28,7 @@ DA is incentivized to not consider reconsidering.
 
 When he listened to the tape and it proved the testimony was coerced, I felt anxiety for the lawyer. That's probably a real fear people feel when upsetting the status quo.
 
-"First time in a chamber? Don't think too much, you'll lose your shit." — Metaphor for society as a whole.
+"First time in a chamber? Don't think too much, you'll lose your shit." — Metaphor for white culture as a whole. Distract and deflect.
 
 Do they actually play gospel music for everyone else in the prison when someone's walking to die? That's messed up.
 
